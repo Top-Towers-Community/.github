@@ -1,0 +1,1 @@
+The Top Towers Community (TTC) is a community-based list of towers that've been verified placed on this list of 100 top hardest towers beaten. The TTC consists of multiple lists that each applies to each criteria within it, such as the main and legacy list, mobile, 60 frames per second (FPS), everything list, and more.
